@@ -1,11 +1,11 @@
 # antonizaradniak.github.io
 
 ## Doświadczenie
-**Antoni**
+**Antoni**\
 od 2019
 
-**XD**
+**XD**\
 od 2018
 
-**LOL**
+**LOL**\
 od 2017
